@@ -1,6 +1,6 @@
 The _Citizenship Act 2063_ and _Citizenship Amendment Act 2019_ directly violates women’s right, child’s right to citizenship and _Nepal’s constitution_itself. We must understand this gender-biased citizenship act is not only women based issue as it directly violates both male and female citizen's rights. There are many stateless children as a direct result of this act. It is infuriating that women are denied even basic human rights as citizens.  
   
-Gender equality is the first step of any civilized and democratic country. When you don't have basic rights, what is the point of fighting for other inequalities? It’s time to go back to the basics. Get equal citizenship right.  
+Gender equality is the first step of any civilized and democratic country. When you don't have basic rights, what is the point of fighting for other inequalities? It’s time to go back to the basics. Get equal citizenship rights.
   
 Citizenship means "The status of a person recognized under the custom or law as being a legal member of a sovereign state or belonging to a nation". Nepal’s interim constitution has given equal rights to all.  
   
