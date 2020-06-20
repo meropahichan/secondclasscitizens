@@ -18,11 +18,11 @@ In many cases, women need to go through the hassles of paperwork and also face t
   
 With the deprivation of citizenship, a child is rendered a stateless person. Under the existing laws of Nepal, a person without citizenship is not able to pursue higher education, apply for a driving license or a bank account, start a company or conduct business, enter into any kind of formal services, and so on. Consequently, a person becomes not only stateless, but also the victim of the denial of all social, political, and economic opportunities.  
   
-Any male Nepali with citizenship by descent marrying a foreign woman will get her citizenship by naturalization immediately (New Amendment 2019 proposes in 7 years) but a female with citizenship by descent (वंशज) marrying a foreigner can never get her spouse any sort of recognition from the state. In addition, she’s also expected to prove that she resides in Nepal to keep retaining her citizenship. Furthermore, her child will only have the right to citizenship by naturalization.  
+Any male Nepali with citizenship by descent marrying a foreign woman can get her citizenship by naturalization immediately (New Amendment 2019 proposes in 7 years) but a female with citizenship by descent (वंशज) marrying a foreigner can never get her spouse any sort of recognition from the state. In addition, she’s also expected to prove that she resides in Nepal to keep retaining her citizenship. Furthermore, her child will only have the right to citizenship by naturalization.  
   
 What is citizenship by naturalization?  
   
-To be elected for the president, vice president, prime minister, chief justice, speaker of the house of representative, speaker of the national assembly, head of state, chief minister, speaker of the state assembly, chief of the security staff of the country, one must have the citizenship by descent.  
+To be elected for the president, vice president, prime minister, chief justice, speaker of the house of representative, speaker of the national assembly, head of state, chief minister, speaker of the state assembly, chief of the security staff of the country, one must have citizenship by descent.  
   
   
 Rules and regulation  
