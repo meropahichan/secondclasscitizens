@@ -63,3 +63,7 @@ To be elected for the president, vice president, prime minister, chief justice, 
 5.  Please refrain from using offensive languages, veiled or direct threats and baseless allegations against persons.
 
 6.  Please refrain from shaming persons based on their gender, race, caste, age, and physical appearances and abilities or by any other measure
+7.  This is a citizenship movement hence no political alliance , please refrain from any political comments.
+
+## To send your story 
+meropahichan2020@gmail.com
