@@ -65,5 +65,21 @@ To be elected for the president, vice president, prime minister, chief justice, 
 6.  Please refrain from shaming persons based on their gender, race, caste, age, and physical appearances and abilities or by any other measure
 7.  This is a citizenship movement hence no political alliance , please refrain from any political comments.
 
+## Since we’ve identified the underlying problems with the existing legislation(s), we demand the concerned authority to make following amendments therein:
+ 
+1. 	The wording of section 5(1) of the Citizenship Act, 2006, and of Article 11(6) of the Constitution of Nepal, 2015 should be along the lines of providing citizenship by Naturalization to the foreign national marrying a Nepali national mandating the same applicable provisions as in the current legislation. 
+ 
+2. 	Section 5(2) of the Citizenship Act, 2006 should be completely scrapped off and Section 3(1) of the Act should be applicable to both Nepali male and female regardless of marrying foreign national, thus ensuring citizenship by descent to a child born from a Nepali citizen, either mother or father. This amendment, in no way, disregards the legal requirement of a child born to a Nepali national and a foreign national to not have acquired a foreign citizenship. 
+
+In order to ensure this provision , it requires an amendment to Article 11(3) of the Constitution of Nepal, 2015, which should spell as “A child of a citizen having obtained the citizenship of Nepal by birth prior to the commencement of the constitution shall, upon attaining majority, acquire the citizenship of Nepal by descent if either of the child’s father and mother are citizens of Nepal.”
+ 
+3. 	As per the addition made to Section 8(1) Act under the amendment, Section 8(1)(a2) should be scrapped completely as the legislation does not require the same provision from a Nepali male counterpart. 
+Likewise, Article 11(5) of the Constitution of Nepal, 2015 should be completely erased, thus reinforcing Article 11(2)(b) of the Constitution. 
+ 
+4. 	In order to ensure citizenship rights to a child adopted by a same-sex couple, or a child born upon the marriage of transgender citizen(s), any relevant provisions on citizenship rights thereunder should maintain gender-neutral language and tone.
+ 
+All in all, the legislation should enable all the citizens regardless of gender, sexual orientation or any other such factor, the enjoyment of such a fundamental citizen right i.e., citizenship right without any discrimination.
+
+
 ## To send your story 
 meropahichan2020@gmail.com
